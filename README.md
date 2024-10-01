@@ -6,3 +6,7 @@ https://hellnet.work/8831/
 https://88x31db.com/
 https://yesterweb.org/graphics/buttons
 https://anlucas.neocities.org/88x31Buttons
+http://88x31.nl/index.html
+https://exo.pet/
+https://capstasher.neocities.org/88x31collection-page1
+https://cyber.dabamos.de/88x31/
