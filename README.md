@@ -1,4 +1,4 @@
-This repository is basically just a stash for all the web buttons I use. Feel free to grab some for yourself if you want.
+This repository is basically just a stash for all the web buttons, fonts, etc. I use.
 Here are some cool sites where I get most of my buttons:
 http://textfiles.com/underconstruction/88x31/
 https://web.badges.world/
